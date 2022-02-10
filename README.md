@@ -158,7 +158,7 @@ Distributed under the GNU GENERAL PUBLIC LICENSE License. See `LICENSE` for more
 - [![Facebook Profile](https://img.shields.io/badge/Facebook-Profile-1877F2?style=for-the-badge&logo=facebook&logoColor=white)](https://facebook.com/ffsowmik)&nbsp;
 - [![Telegram](https://img.shields.io/badge/Telegram-ID-2CA5E0?style=for-the-badge&logo=telegram&logoColor=white)](https://t.me/xowmik)&nbsp;
 
-**Team X 1337**
+**MURAD**
 - [![Facebook ACCOUNT](https://www.facebook.com/MURAD.CEO32
 
 
